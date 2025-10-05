@@ -1,3 +1,7 @@
 ### DOSHA SHOP
 
-# first
+# Plain Dosa
+### adding 
+* dosa butter
+* light oil
+ 
